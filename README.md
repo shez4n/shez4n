@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **shzn24@gmail.com**
 
-- ⚡ Fun fact **Team Rocket's dedication to catch Pikachu is more than that of Robert Bruce to get back his kingdom**
+- ⚡ Fun fact Me gustan los girasoles[.](https://translate.google.com/?sl=auto&tl=en&text=me%20gustan%20los%20girasoles&op=translate&hl=en)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
